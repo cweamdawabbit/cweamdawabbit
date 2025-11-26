@@ -13,5 +13,5 @@ some dni will change.
 
 # Mental age = 5-7 depending on how long it will last.
 ✦•······················•✦•······················•✦✦•······················•✦•······················•✦✦•······················•✦•······················•✦✦•······················•✦•······················•✦
-### dni if your 15+ unless close friend like [@ames](https://github.com/PikoPikoHammer) , and of course the exception of family.
+### dni if your 14+ unless close friend like [@ames](https://github.com/PikoPikoHammer) , and of course the exception of family.
 ✦•······················•✦•······················•✦✦•······················•✦•······················•✦✦•······················•✦•······················•✦✦•······················•✦•······················•✦
